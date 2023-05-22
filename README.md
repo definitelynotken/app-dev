@@ -144,13 +144,3 @@ The show delves into the complex life of Lucifer, who is portrayed as a charming
 | 8 | Save the Devil, Save the World |
 | 9 | Goodbye, Lucifer |
 | 10 | Partners 'Til the End |
-
-
-
-
-
-
-
-
-
-
